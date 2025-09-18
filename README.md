@@ -48,3 +48,5 @@ Join the thousands already using **we the north canada** to buy, sell, or explor
 ---
 
 *Note: For the safest experience, always follow personal privacy best practices. http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion never requires more information than necessary.*
+
+Update:  18.09.2025 url is responsive and live
